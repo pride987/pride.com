@@ -1,1 +1,1 @@
-# pride.tpsp.biz
+# pride.com
